@@ -1,5 +1,3 @@
-- 👋 Hi, I’m @ClayburnL
-
 Lloyd Clayburn
 
 Healthcare Scientist Trainee (STP)
