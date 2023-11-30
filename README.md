@@ -1,6 +1,6 @@
 Lloyd Clayburn
 
-Healthcare Scientist Trainee (STP)
+Pre-registration Clinical Scientist
 
 Medical Imaging and Medical Physics
 
