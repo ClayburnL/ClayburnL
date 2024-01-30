@@ -2,7 +2,7 @@ Lloyd Clayburn
 
 Pre-registration Clinical Scientist
 
-Medical Imaging and Medical Physics
+Radiology Physics
 
 Sheffield Teaching Hospitals NHS FT
 
