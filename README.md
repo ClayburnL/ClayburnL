@@ -1,6 +1,6 @@
 Lloyd Clayburn
 
-Pre-registration Clinical Scientist
+MR Clinical Scientist
 
 Radiology Physics
 
